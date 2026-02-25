@@ -12,6 +12,6 @@
 - Gipsy Danger
 - Cherno Alpha
 - Striker Eureka
-
-gif's huge..
+- 
+gif's huge.. <br>
 ![striker eureka](https://i.redd.it/a-tribute-to-the-striker-eureka-v0-kszusx7ii0da1.gif?width=736&auto=webp&s=2fb6118d0c4622310615763a1c1a1afc35d5afb0) 
